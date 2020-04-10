@@ -1,3 +1,3 @@
 # Alyssa,
 
-You'd better not read this until the 22nd, OK? 
+Don't read this until the 22nd, OK? 
